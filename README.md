@@ -1,2 +1,0 @@
-# cyber-warrior
-protect safety
